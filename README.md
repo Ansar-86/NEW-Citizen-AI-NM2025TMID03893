@@ -1,2 +1,0 @@
-# NEW-Citizen-AI-NM2025TMID03893
-Alpha Citizen-Ai Our Team Id:NM2025TMID03893
